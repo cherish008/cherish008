@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cherish008
 - 👀 I’m interested in game
 - 🌱 I’m currently learning software code
-- 💞️ I’m looking to collaborate on science
+- 💞️ I’m looking to collaborate on Financial currency
 - 📫 How to reach me my mailsi zhangzai8023@gmail.com
 
 <!---
